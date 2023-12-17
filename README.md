@@ -1,1 +1,1 @@
-# hydrotrium-script
+# bang udah bang
